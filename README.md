@@ -1,4 +1,4 @@
-# Climate-Change-Policy-and-Practise
+# Climate-Change-Policy-and-Practice
 
 ## List of Climate Change and Greenhouse Gas Emission related Projects
 
